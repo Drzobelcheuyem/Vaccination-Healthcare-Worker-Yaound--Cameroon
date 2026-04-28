@@ -1,1 +1,1 @@
-# Vaccination-Healthcare-Worker-Yaound--Cameroon
+# Vaccination-Healthcare-Worker-Yaoundé-Cameroon
